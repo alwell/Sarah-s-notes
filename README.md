@@ -1,4 +1,4 @@
-# Sarah-s_notes
+# Sarah's notes
 
 These are notes have been compiled from the posts on the Dhamma Study Group (https://groups.io/g/dsg) by Sarah Abbott. Most  are from discussions with Ajahn Sujin Boriharnwanket. These notes are unedited arnd may contain many Pāli words. They are mostly abstruse points about the teaching and generally not suitable for the beginner.
 
