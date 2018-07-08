@@ -1,6 +1,6 @@
 # Sarah's notes from Hanoi 10
 
-## \#153020, June 24th 2018
+## [#153020](https://groups.io/g/dsg/message/153020), June 24th 2018
 
 **Dear Friend**
 
