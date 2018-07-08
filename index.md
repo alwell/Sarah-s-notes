@@ -4,4 +4,4 @@ The Dhamma Study Group is  discussion forum for anyone interested in understandi
 
 ### Index
 
-[Hanoi 10](https://alwell.github.io/Sarah-s-notes/Hanoi_10)
+[Hanoi 10](https://alwell.github.io/Sarah-s-notes/Hanoi_10) Vegetarianism, killing.
