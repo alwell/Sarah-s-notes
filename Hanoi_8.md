@@ -1,6 +1,6 @@
 # Sarah's notes from Hanoi 10
 
-## 153020, June 24th 2018
+## \#153020, June 24th 2018
 
 **Dear Friend**
 
@@ -17,6 +17,6 @@ Meditating can be for other purposes but not for understanding. The aim of the B
 
 6. Qu about Mahayana and Theravāda, various rules, chanting, diet and so on when family visit. "The truth is the truth - not 'Mayayana' or 'Theravada'" No need to think about such terms.
 
-7. Sīla, the behaviour of cittas. Are they to `keep' or to understand? Are the cittas different now from moment to moment? So many rules because of the different behaviour in cittas. When there is no understanding, citta is taken for self, so there is the idea of ``I am observing rules". Understanding is not ``I". The Buddha taught about all levels of kusala and akusala. The Buddha taught about the danger of all kinds of akusala, especially the strong ones like killing. When it is more dangerous, it harms others. When we read the Vinaya, we can follow many of the rules. What is good is not limited to anyone. It depends on understanding.
+7. Sīla, the behaviour of cittas. Are they to 'keep' or to understand? Are the cittas different now from moment to moment? So many rules because of the different behaviour in cittas. When there is no understanding, citta is taken for self, so there is the idea of 'I am observing rules". Understanding is not 'I". The Buddha taught about all levels of kusala and akusala. The Buddha taught about the danger of all kinds of akusala, especially the strong ones like killing. When it is more dangerous, it harms others. When we read the Vinaya, we can follow many of the rules. What is good is not limited to anyone. It depends on understanding.
 
 Sarah
