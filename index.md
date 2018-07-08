@@ -4,4 +4,4 @@ The Dhamma Study Group is  discussion forum for anyone interested in understandi
 
 ### Index
 
-[Hanoi 10](https://alwell.github.io/Sarah-s-notes/Hanoi_10) Vegetarianism, killing.
+### Notes from Hanoi 10 [#153020](https://groups.io/g/dsg/message/153020), June 24th 2018 Vegetarianism, killing.
