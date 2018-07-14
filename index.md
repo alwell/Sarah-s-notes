@@ -8,6 +8,6 @@ The Dhamma Study Group is  a discussion forum for anyone interested in understan
 - Sarah's notes from Hanoi 8 [#152836](https://groups.io/g/dsg/message/152836), June 15th 2018 *keywords* purification, muditā, words for paññā, nimitta.
 - Sarah's notes from Hanoi 7 [#152621](https://groups.io/g/dsg/message/152621), June 4th 2018 *keywords* curiosity, rules, pāramī.
 
-- The Point 14/7/18 [153321](https://groups.io/g/dsg/message/153321)
+- Sarah's notes. The Point [#153321](https://groups.io/g/dsg/message/153321). 14th July 2018
 
-- Sarah's notes from Hanoi 5 [152614](https://groups.io/g/dsg/message/152614)
+- Nina's notes Dhamma conversation in the Hague, 3.  [#152614](https://groups.io/g/dsg/message/152614). 4th June 2018
